@@ -1,4 +1,4 @@
-#  
+#  easter tap simulator secure Script offers the most advanced easter tap simulator Script, with auto-collect and invisibility. Perfect for dominating
 
 
 
